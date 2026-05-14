@@ -1,4 +1,4 @@
-#  
+#  Experience jujutsu infinite like never before with jujutsu infinite Scripts secret, the #1 Script. Includes auto-heal and anti-ban for unbeatable
 
 
 
